@@ -1,3 +1,5 @@
 ## .
 
-<img src="https://files.catbox.moe/152az9.png">
+<div align="center">
+
+<a href="https://guns.lol/dreamnomore"><img src="https://files.catbox.moe/4yrbbk.png" align="center" height="500" alt="guns"></a>&nbsp;&nbsp;<a href="https://goldenapostate.straw.page/"><img src="https://files.catbox.moe/is3g4t.png" align="center" height="500" alt="straw">
